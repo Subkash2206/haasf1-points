@@ -1,0 +1,1 @@
+# haasf1-points
